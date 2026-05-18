@@ -14,4 +14,4 @@ Films to series ratio on Netflix 70/30
 
 USA is the king with 2818 titles vs 972 India after
 
-1545 titles added after 2019
+1545 US titles added after 2019
